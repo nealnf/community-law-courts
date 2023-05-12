@@ -1,0 +1,38 @@
+baseURL: "https://communitylawcourts.org"
+languageCode: en-gb
+title: Community Law Courts
+theme: PaperMod           
+
+menu:
+    main:
+        - identifier: about
+          name: About
+          url: /about/
+          weight: 10
+        - identifier: donations
+          name: Donations
+          url: /donations/
+          weight: 20
+        - identifier: services
+          name: Services
+          url: /services/
+          weight: 30
+        - identifier: gallery
+          name: Gallery
+          url: /gallery/
+          weight: 40
+        - identifier: contact
+          name: Contact
+          url: /contact/
+          weight: 50
+
+
+
+
+
+
+
+
+
+
+
