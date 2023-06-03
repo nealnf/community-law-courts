@@ -1,6 +1,5 @@
 ---
 title: "Contact"
-draft: false
+draft: false 
 ---
-We The People can contact us via the 'We Need You!!!' Facebook group.
-A contact form is in development. 
+People can contact [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) via Facebook Messenger through 'Neal Finesilver'. Please give your name, email address and message so that we can deal with your communication in the best way possible. 

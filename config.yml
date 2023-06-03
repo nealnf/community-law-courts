@@ -3,6 +3,11 @@ languageCode: en-gb
 title: Community Law Courts
 theme: PaperMod           
 
+params:
+  ShowSharebuttons: true
+    
+  ShowPostNavLinks: true
+
 menu:
     main:
         - identifier: agreement
