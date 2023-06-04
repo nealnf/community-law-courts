@@ -1,6 +1,10 @@
 ### Home
 
-A warm welcome to our [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) website.  We aim to keep this website up to date so that we can all benefit from [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) services as much as possible.  We offer thee a range of services which we feel will be very useful and you can use as reference for whatever purpose is best suited to thee. Enjoy our site!  
+A warm welcome to our [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) website.  We aim to keep this website up to date so that we can all benefit from [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) [services](https://communitylawcourts.org/services/) as much as possible.
+
+For the purpose of the [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) is to aid every man and woman that comes to us to stand up for their rights.
+
+We offer thee a range of [services](https://communitylawcourts.org/services/) which we feel will be very useful and you can use as reference for whatever purpose is best suited to thee. Enjoy our site!  
 
 [**Lawful advocacy**](https://communitylawcourts.org/services/lawful-advocacy/) is a new term that the [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) coined.  For us the definition of [lawful advocacy](https://communitylawcourts.org/services/lawful-advocacy/) is the capacity to have knowledge of both legalese system and of the lawful system and to have the skills an aptitude to operate between the two jurisdictions and be able to respond to both of those jurisdictions according to the facts of any particular claim.
 

@@ -25,7 +25,7 @@ Maritime and admiralty laws can not provide fairness due to the innate deception
 
 Our people across the British Isles have a one percent share of the [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/).  For we the people own the [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) and is funded by We The People for the people.
 
-For we can provide all of the services of legalise courts and we believe in a fairer justice system.
+For we can provide all of the [services](https://communitylawcourts.org/services/) of legalise courts and we believe in a fairer justice system.
 
 ### Trial by jury
 
@@ -48,6 +48,3 @@ Curiosity has always been our foundation from the first time we spoke. Hence we 
 We too live on Devon and travel widely with : Deborah. across the British Isles.
 
 We joined the [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) in August 2022 for what is now our life’s work.
-
-
-  
