@@ -12,12 +12,12 @@ At the moment there are precedence.  Precedence is like case law. For example we
 
 ### Enforcement
 
-Enforcement is critical.  It is very important that people’s claims are enforced and that is something we have struggled with.  Firstly because we have been challenged by the legalese system itself, who would very much like to keep us out for as long as possible.  Secondly, we have not had Justices Of The Peace to assist us to enforce our orders and so we have been carrying out a public enforcement strategy which involves community taking action against any organisation that has been found in criminal or causing harm, loss or injury.
+Enforcement is critical.  It is very important that people’s claims are enforced and that is something we have struggled with.  Firstly because we have been challenged by the legalese system itself, who would very much like to keep us out for as long as possible.  Secondly, we have not had [Justices Of The Peace](https://communitylawcourts.org/services/justices-of-the-peace) to assist us to enforce our orders and so we have been carrying out a public enforcement strategy which involves community taking action against any organisation that has been found in criminal or causing harm, loss or injury.
 
-Our aim would eventually be to have Justices' Of The Peace to enforce our orders exactly the same way legalese courts would have bailiffs; policemen or women. Something we have to broker with the existing system to access prisons for those we have found in need of incarceration.  In other words a prison sentence.  Therefore, we don’t see why we shouldn’t have access as we are creditors of the public services we have and that is something we have to look into. 
+Our aim would eventually be to have [Justices Of The Peace](https://communitylawcourts.org/services/justices-of-the-peace) to enforce our orders exactly the same way legalese courts would have bailiffs; policemen or women. Something we have to broker with the existing system to access prisons for those we have found in need of incarceration.  In other words a prison sentence.  Therefore, we don’t see why we shouldn’t have access as we are creditors of the public [services](https://communitylawcourts.org/services/) we have and that is something we have to look into. 
 
 At the moment, with the level of enforcement certainly has to be addressed and developed.
 
 Enforcement is enforcing whatever has been upheld by the orders.  In our case, lawful orders upheld by the Community Law Courts trial by jury.
 
-We have to have class actions happening across the British Isles to bring in the military to take out those people that don’t allow us to enforce and uphold our rules by the will of the people.  However, we do not suggest there is isn’t work to be done but that is what has to be done.
+We have to have class actions happening across the British Isles to bring in the military to take out those people that don’t allow us to enforce and uphold our rules by the will of the people.  However, we do not suggest there isn’t work to be done but that is what has to be done.
