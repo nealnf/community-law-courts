@@ -12,7 +12,7 @@ Men and women who would be suitable as Justices Of The Peace have to be either w
 
 Men and women with some levels of disability like being confined to a wheelchair, would be able to work with a man or woman with physical fitness when they have wisdom and life experience.  For the wise man or woman would have to be trained in conflict resolution.
 
-With regards to the [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/), we can be at any location on the British Isles.  We merely ask our shareholders to contact us and let us know that they require us to make a class action claim.
+With regards to the [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/), we can be at any location on the British Isles.  We merely ask our shareholders to [contact](https://communitylawcourts.org/contact/) us and let us know that they require us to make a class action claim.
 
 Our aim at the [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/) is to have [donations](https://communitylawcourts.org/donations/) come in so that we can compensate JOP for their work.  As we have our first JOP, our courts have been in process and we are making claims.  This is a fully functioning  cooperative and it will keep growing.
 
