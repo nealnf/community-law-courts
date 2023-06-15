@@ -2,7 +2,7 @@
 title: "Justices of the Peace"
 draft: false
 ---
-As [donations](https://communitylawcourts.org/donations/) come in for our community law courts, the aim is for us to have at least ten Justices Of The Peace in every town working full time and at least twenty-six in cities.  Justices Of The Peace telephone number to call will be ‘133’ .
+As [donations](https://communitylawcourts.org/donations/) come in for our [Community Law Courts](https://communitylawcourts.org/services/community-law-courts/), the aim is for us to have at least ten Justices Of The Peace in every town working full time and at least twenty-six in cities.  Justices Of The Peace telephone number to call will be ‘133’ .
 
 Justices Of The Peace come from Statute Of Northampton 1328 and of the constitutional act of Justices Of The Peace act of 1361.  Therefore these two pieces of legislation we believe are the basis of keeping the peace in all communities and cities.  Justices Of The Peace role are there to stop any man or woman carrying weapons, breach of the peace or wearing armour.  They will always look into and investigate any breach of the peace, seek to intervene in the breach of the peace and they have the right to disarm any man or woman from carrying of any weapons.  
 
