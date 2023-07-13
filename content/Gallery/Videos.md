@@ -63,4 +63,4 @@ https://www.facebook.com/groups/7983538341716797
  
 ### For the Community Law Court of the man : Richard. did take place at Brighton, East Sussex in November 2022 with a trial by jury of twenty-one men and women.
 
-
+https://rumble.com/v2zv2q6-brighton-community-law-court-part-one.html
