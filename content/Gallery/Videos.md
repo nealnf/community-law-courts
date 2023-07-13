@@ -57,7 +57,7 @@ https://rumble.com/v2zulnq-trespass-by-way-of-trespass-part-eight.html
 
 https://rumble.com/v2zup6w-trespass-by-way-of-kidnap-part-nine.html
 
-### Community Law Courts have a private Facebook page caled 'We Need You!!!'.  On We Need You!!! it gives us the background to the kidnap of : Jet. son of : Deborah.  Here is the link:
+### Community Law Courts have a private Facebook page called 'We Need You!!!'.  On We Need You!!! it gives us the background to the kidnap of : Jet. son of : Deborah.  Here is the link:
 
 https://www.facebook.com/groups/7983538341716797
  
