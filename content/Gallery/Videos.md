@@ -64,3 +64,13 @@ https://www.facebook.com/groups/7983538341716797
 ### For the Community Law Court of the man : Richard. did take place at Brighton, East Sussex in November 2022 with a trial by jury of twenty-one men and women.
 
 https://rumble.com/v2zv2q6-brighton-community-law-court-part-one.html
+
+https://rumble.com/v2zxsm2-brighton-community-law-court-part-two.html
+
+https://rumble.com/v2zxz0a-brighton-community-law-court-part-three.html
+
+https://rumble.com/v300m7y-brighton-community-law-court-part-four.html
+
+### For the Community Law Court of the man : Michael. did take place at Combe Martin, Devon on the first December 2022 with a trial by jury of thirteen men and women.
+
+https://rumble.com/v300ppy-combe-martin-community-law-court..html
